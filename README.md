@@ -1,2 +1,2 @@
 # DELETION
-Haunted by visions of a digital apocalypse, a psychic fugitive joins outlaw hackers to stop a rogue AI hell-bent on erasing what's left of humanity.
+Haunted by visions of a digital apocalypse, a precognitive fugitive discovers he is the prototype an AI needs to evolve—and must choose: merge or destroy it to save humanity.
